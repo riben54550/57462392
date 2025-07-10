@@ -16,4 +16,4 @@
 
 欢迎体验本站带来的高品质日本AV免费观看服务。
 
-<span style="display:none;">[Canonical link]( https://github.com/ribenyi1021/57462392 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/riben54550/57462392 ）</span>
